@@ -1,2 +1,2 @@
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=FFFFFF&lines=-+-+-+-+-+-+-+-+-+-+-+-+-+-+-+why+?)](https://git.io/typing-svg)
-<p></p> <img width="498" height="440" alt="yuushima-yuu" src="https://github.com/user-attachments/assets/b22b3335-460b-42ae-adef-a21ee7c37ded" />
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=FFFFFF&lines=-+-+-+-+-+-+-+-+-+-+-+-+-+-+-+ohh+?)](https://git.io/typing-svg)
+<p></p> <img width="498" height="440" alt="yuushima-yuu" src="https://media1.tenor.com/m/Sze_wt3JpsUAAAAd/kyona.gif" />
